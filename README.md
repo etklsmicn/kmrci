@@ -1,4 +1,4 @@
-<h1><a href="https://canlikumar.com.tr" title="Kumar Siteleri Giriş İçin Tıklayınız">Kumar Siteleri Giriş İçin Tıklayınız 🎰✅</a></h1> 
+<h1><a href="https://canlikumar.com.tr" title="Kumar Siteleri Giriş İçin Tıklayınız">Kumar Siteleri Giriş İçin Tıklayınız.🎰✅</a></h1> 
 <p>En güncel kumar siteleri giriş adresleri ile bahis ve casino dünyasına adım atın! Yüksek oranlı bahis seçenekleri, geniş oyun yelpazesi ve özel promosyonlarla dolu bir deneyim sizi bekliyor. Güvenilir altyapısı ve hızlı ödeme sistemleri ile kazanç fırsatlarını kaçırmayın! 🎲💰</p>
 
 <a href="https://canlikumar.com.tr" title="Deneme Bonusu Al">
